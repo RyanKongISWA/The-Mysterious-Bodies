@@ -2,7 +2,7 @@
 ## Author: Ryan
 
 I was sipping a fresh cup of tea with my cat Whiskers when I received a call. Well, there goes my well-deserved afternoon break. After trying to find a missing person stuck in the basement, I got another case to solve. \
-“Hello, Detective Simon here. Who is this?”\
+“Hello, Detective Simon here. Who is this?”
 
 *   *   *
 
@@ -11,7 +11,7 @@ I got lost trying to find the entrance to this castle. Then I resigned and asked
 Strange feelings aside, I determined that the crime had occurred around 3 hours before I arrived.\
 “When was the crime reported?” I asked Thomas.\
 “Just yesterday. An old couple strolled along the street when a bright yellow light flashed in one of Castle Inverness’s windows. They called the police, the police called us who know more about the castle than they do, and we called you because you’re the best detective we know.” \
-Well, that was very weird; the victim’s body temperature did not correspond to the story that Thomas gave me. I think I’ll add him to the list of suspects I have in my notebook. Plus, that attempt at buttering me up isn’t going to work.\
+Well, that was very weird; the victim’s body temperature did not correspond to the story that Thomas gave me. I think I’ll add him to the list of suspects I have in my notebook. Plus, that attempt at buttering me up isn’t going to work.
 
 *   *   *
 
@@ -27,7 +27,7 @@ In the corner—or what was left of a corner—there lay a body, clad in robes i
 “When was the crime reported?” I asked Thomas.\
 “This might sound ridiculous, but yesterday, a satellite took an image of the ruins. When we received the photo, it had a bright yellow splotch on it. We immediately went there to investigate and saw the body.”\
 Strange. Very strange. This story’s ridiculous nature made me suspect Thomas very highly, no matter how respectable he was.\
-Hopefully, all this car driving was counted in my travel expenses. Plus, this case was something that I could sleep on, and get a good answer tomorrow.\
+Hopefully, all this car driving was counted in my travel expenses. Plus, this case was something that I could sleep on, and get a good answer tomorrow.
 
 *   *   *
 
@@ -38,13 +38,13 @@ Then, I watched the king go to bed. The bedroom was coloured in red, with some g
 Then, the host of the feast came into the king’s quarters, clutching a dagger with his hand. His blood-red eyes caught my attention; it looked like he was devoid of any morality. I watched him brutally stab the king multiple times in his heart and throat. Blood splattered everywhere. The host, now also a murderer, looked regretfully at the blood on his hands, knowing that the blood would never come off. \
 I tried to get closer to examine the dead body, but it was at this moment that I woke up. How upsetting. \
 This dream was strange, to say the least, but even more unsettling was the resemblance towards the crime scenes I saw earlier; the castle was strangely similar. I pulled out a photo of the inside of the majestic Castle Inverness, and the bedroom was about the same, with the same golden patterns on the walls, complete with the dead king on the bed. Also, the victims’ robes were the same, although the ones I found the other day at the crime scenes looked a lot older.\
-This can’t be just a coincidence, right? I’ll drive to the crime scene to double-check. The mystery deepens.\
+This can’t be just a coincidence, right? I’ll drive to the crime scene to double-check. The mystery deepens.
 
 *   *   *
 
 I left for Castle Inverness in the early morning to inspect the body. The castle was the same as in my dream; however, it had lost much of its colour and saturation, the walls being a bit whiter than before. Even its beauty and size could not hide the fact that it was old and abandoned.\
 Once again, I went to the bed in the castle, and sure enough, the dead king from my dream was there, only lacking his crown. The stabs on the neck also corresponded with the places where the king got brutally stabbed.\
-All this detective work is very tiring. I’ll go to sleep now.\
+All this detective work is very tiring. I’ll go to sleep now.
 
 *   *   *
 
@@ -54,7 +54,7 @@ Suddenly, I was transported to a park. The park was well-tended, where plants gr
 Three people were lingering there, with knives in their grubby hands. Anyone could guess that their intentions were anything but good. They all wore earth-coloured clothing, not because they wanted to hide from people, but because they were too poor to afford anything else. Their grubby, unwashed hands and faces told the same story.\
 Two more people on horses came in noble robes. One of them wore a darker shade of cyan; the other wore olive green. They had no patterns on their robes, which allowed them to blend in with the landscape. However, they were not poor; bags of money hung on their waists. They set a torch ablaze. Little did they know that would be the trigger for their untimely demise.\
 I saw the three people run and try to kill the other two. One of them got away on his horse; the other was not as lucky and suffered a cut to the throat. The murderers threw the victim into the ditch, leaving a trail of blood. The horse, now without its rider, ran away. \
-Then, I woke up\
+Then, I woke up.
 
 *   *   *
 
@@ -65,7 +65,7 @@ I found my way to the ditch. Sure enough, there was the unfortunate noble in the
 However, I saw some fresh horse tracks that were not there yesterday. \
 Normally I would suspect that someone has accidentally tampered with the crime scene by riding a horse through it, but the direction of the horse was the same direction where the son fled in the dream. Plus, the horse tracks didn’t look like any horse would make; they petered out when leaving the ditch, each step lighter than the previous, until there were none. Something was wrong, and I didn’t know what. \
 I closely inspected the body and noticed that the cut at the throat was still there. I touched the body again, and it still felt warm to the touch, which was very strange. I took some pictures and went home to think.\
-Thinking is too boring. I’ll go to sleep now.\
+Thinking is too boring. I’ll go to sleep now.
 
 *   *   *
 
@@ -79,7 +79,7 @@ That could very well be the last dream of the bunch. \
 Back to detective work.\
 From the conversations I heard in my dream, I could tell that the woman was named Lady MacDuff. This gave me a clue as to when the murder took place; it happened when kings and lords ruled the kingdom, when agriculture was the main form of income for all, and when society—as we know it—had not been established.\
 But how did the bodies get preserved?\
-Thomas must be hiding something.\
+Thomas must be hiding something.
 
 *   *   *
 
@@ -88,7 +88,7 @@ I followed him and sure enough, part of the picture was covered in a bright yell
 Thomas came in and gave me his well-thought-out, detailed explanation of what was happening.\
 “I have no idea what was going on, and honestly, I thought I was seeing things when I saw the yellow light. Then I made an entire program to read the image, and it showed that there was indeed a bright yellow circle there.”\
 There goes any chance I had with Thomas’s house. I still think that he is suspicious, and I had to do some snooping around. So, I spent the afternoon searching Thomas's house discreetly and found absolutely nothing of value to the investigation. I’m still not going to cross him off my list; he still seems a little suspicious.\
-Detective work is very tiring. I think I’ll go to sleep.\
+Detective work is very tiring. I think I’ll go to sleep.
 
 *   *   *
 
@@ -102,7 +102,7 @@ They then said, in perfect unison:\
 “Before you wake up from your slumber,\
 Speak, and we shall answer.”\
 Well, these women seemed strange from the start, and they seemed to know their stuff. So, I bombarded them with questions, and they answered every question I had with ease, all while maintaining a constant meter and rhyme. It must have something to do with all that fortune-telling that keeps the brains working. \
-After asking them a few questions, I found out that I was in Scotland in the year 1003 AD. They also told me that they specialize in fortune-telling and potion brewing and gave me a potion that would cure me of any aches and pains I had. Although it sounded like a promising offer, I turned it down out of suspicion and asked them what happened to the three victims who died at the hands of daggers.\
+After asking them a few questions, I found out that I was in Scotland in the year 1003 AD. They also told me that they specialize in fortune-telling and potion brewing and gave me a potion that would cure me of any aches and pains I had. Although it sounded like a promising offer, I turned it down out of suspicion and asked them what happened to the three victims who died at the hands of daggers.
 
 *   *   *
 
@@ -154,7 +154,7 @@ Then you shall reveal the stories unsaid.”\
 Just when I wanted to leave, I suddenly remembered something important.\
 “Where is Macbeth now?”\
 The witches looked at me, then disappeared. Seems like they didn’t know either. I then woke up.\
-I immediately checked my bedside table, hoping for some evidence. There was a folder on the table, and it seemed very old. However, it contained a lot of pictures. They were all images of how the multiple murders happened, all showing the deaths of Duncan, Banquo, and Lady Macduff, the three victims I was tasked to find the cause of death of. All in unbelievably high detail, even the most advanced cameras could not capture this image. There were also pictures relating to where Macbeth’s body was located. They show that Macbeth was buried in Dunsinane, so there I went.\
+I immediately checked my bedside table, hoping for some evidence. There was a folder on the table, and it seemed very old. However, it contained a lot of pictures. They were all images of how the multiple murders happened, all showing the deaths of Duncan, Banquo, and Lady Macduff, the three victims I was tasked to find the cause of death of. All in unbelievably high detail, even the most advanced cameras could not capture this image. There were also pictures relating to where Macbeth’s body was located. They show that Macbeth was buried in Dunsinane, so there I went.
 
 *   *   *
 
@@ -174,7 +174,7 @@ How could it end like this? All my life’s work, all my achievements going down
 Suddenly, my hand hit Thomas. I couldn’t control that, and thanks to me being fuelled with this anger, I felt a strange desire to carry on and continue to harm him. In fact, there indeed were strange voices in my head telling me to go on. I could easily overpower him; Thomas was not a weak man, but I was a stronger one.\
 It felt that massive amounts of energy were drained from my body every hit. I could not withstand this any longer, and I collapsed. Thomas tried to ask me if I was okay; the look in his eyes told me that he still was very afraid.\
 The last thing I saw before me was the three witches standing on the hill, behind Thomas. Would they scare Thomas to death once he turned around?\
-Guess I’ll never know now.\
+Guess I’ll never know now.
 
-===FIN===\
+===FIN===
 
